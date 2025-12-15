@@ -1,7 +1,12 @@
 # ICO-Marketing-Portfolio
 2025 ICO Marketing Case Studies, Proposals &amp; Strategies | 34x Avg ATH
- Alpha ICO Marketing Portfolio
-ICO/IDO Specialist | 11 Launches | 34x Average
+ # Alpha ICO Marketing Portfolio
+
+11 ICO/IDOs in 2025 | Average 34× ATH | Highest 58× (GameFi)
+
+Full case studies, proposals, and strategies below.
+
+Open for Q1 2026 projects — DM for custom packages.
 ATH | $28M+ Raised
 ## Key Results (2025)
 - Average 34x ATH
